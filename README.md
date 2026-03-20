@@ -23,3 +23,20 @@
 
 
 4. 𝙰𝚗𝚢𝚠𝚊𝚢𝚜! 𝙸'𝚖 𝚟𝚎𝚛𝚢 𝚏𝚛𝚒𝚎𝚗𝚍𝚕𝚢 𝚊𝚗𝚍 𝚕𝚘𝚟𝚒𝚗𝚐, 𝚢𝚘𝚞 𝚍𝚘𝚗𝚝 𝚗𝚎𝚎𝚍 𝚝𝚘 𝚋𝚎 𝚜𝚌𝚊𝚛𝚎𝚍 𝚘𝚏 𝚖𝚎! 𝚖𝚊𝚢𝚋𝚎 𝙸'𝚖 𝚜𝚌𝚊𝚛𝚎𝚍 𝚘𝚏 𝚒𝚗𝚝𝚎𝚛𝚊𝚌𝚝𝚒𝚗𝚐 𝚠𝚒𝚝𝚑 𝚢𝚘𝚞 𝚝𝚘𝚘! 
+
+
+The ships I love!! 
+
+<br><br>
+Bedtime (kookoo x Dozer) 
+
+Pridefulsinner ( Dozer x John grace/Jane grace) 
+
+Dirtytalk  (Mime x Seesay) 
+
+Wetdreams  (Mime x Dozer) 
+
+"ugh BUT I HATE THOSE SHIPS!!!!"
+
+okay,. you don't need to yell at me 🥹
+
